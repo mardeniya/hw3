@@ -4,3 +4,5 @@ https://docs.google.com/forms/d/1xGrrd9z-UXq2RW1cECgZ1AV9AchOWOE-dD45KvNAOIY/edi
  Поучаствовало 20 человек
  
  https://docs.google.com/spreadsheets/d/18UkGRIjPAUQASKH2YoMcVcrLoUJ3OHqhZqC3g1VMNrk/edit#gid=1081389964 - таблица
+ 
+ ВЫВОД: Большинство опрошенных не делает зарядку, довольно частенько опаздывает и препдпочитает, когда их называет котеночком,а не заей :)
